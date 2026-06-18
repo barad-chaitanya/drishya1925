@@ -644,8 +644,8 @@ You've contributed so much to who I'm becoming, whether you believe it or not. A
 
 Oh, and baby — I have gifts for you I'll give them when we finally meet. And yes, we're absolutely cutting a cake because we are DEFINITELY meeting for the first time soon.
 
-Also — nerd moment, bear with me:
-There is no true universal unit of measurement. The only real one is time. So that means... at one point in time I was your pumpkin to your honey, your star to your moon. And that tells me my unit of time is something really sweet and really romantic. I hope that unit stays exactly the same — for this lifetime, and every lifetime after. 🌙
+Also — baby nerd moment,
+There is no true universal unit of measurement. The only real one is time. So that means... at one point in time I was your pumpkin to your honey, your stary to your moony. And that tells me my unit of time is something really sweet and really romantic. I hope that unit stays exactly the same — for this lifetime, and every lifetime after. 🌙
 
 Happy birthday, my kuchupuchu baby. 🌸
 
